@@ -1,8 +1,8 @@
-### 51爆料网 最新地址 👋 (最新更新时间2023-08-08)
+### 51爆料网 最新地址 👋 (最新更新时间2023-09-18)
 
-最新吃🍉地址： https://51bl.fun
+最新吃🍉地址： https://51bl.co
 
-51爆料备用域名：https://51bl.co 
+51爆料备用域名：https://51bl.me 
 
 
 51爆料永久地址 https://51bl.fun
@@ -11,7 +11,7 @@
 
 51爆料TG官方群 https://t.me/https51blfun/2
 
-加入微信扣扣粉丝群 https://51bl.fun/?path=/qun.html
+加入微信扣扣粉丝群 https://51bl.co/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/chigua91GM0
 
@@ -28,7 +28,7 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：https://b1.obqyyh.com/c-5016/a-brEXR 科学上网工具
+5.下载蚂蚁加速器：https://bb0.obqyyh.com/c-5016/a-brEXR 科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
