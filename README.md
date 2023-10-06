@@ -8,13 +8,13 @@
 
 51爆料永久地址 https://51bl.fun
 
-【强烈推荐】加入51爆料公告频道： https://t.me/https51blfun
+【强烈推荐】加入51爆料公告频道： https://t.me/https_51blfun
 
-51爆料TG官方群 https://t.me/https51blfun/2
+51爆料TG官方群 https://t.me/https_51blfun/5
 
 加入微信扣扣粉丝群 https://51bl.club/?path=/qun.html
 
-🤝商务合作🤝请电报(Telegram)联系 https://t.me/chigua91GM0
+🤝商务合作🤝请电报(Telegram)联系 https://t.me/baobao_51
 
 ----------------------------
 
