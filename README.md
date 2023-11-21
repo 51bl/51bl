@@ -1,4 +1,4 @@
-### 51爆料网 最新地址 👋 (最新更新时间2023-11-20)
+### 51爆料网 最新地址 👋 (最新更新时间2023-11-21)
 
 最新吃🍉地址： https://51bl.dev
 
@@ -8,9 +8,9 @@
 
 51爆料永久地址 https://51bl.fun
 
-【强烈推荐】加入51爆料公告频道： https://t.me/https_51blfun
+【强烈推荐】加入51爆料公告频道：https://t.me/https_51bl_fun1/5
 
-51爆料TG官方群 https://t.me/https_51blfun/5
+51爆料TG官方群 https://t.me/baoliao_511
 
 加入微信扣扣粉丝群 https://51bl.dev/?path=/qun.html
 
