@@ -10,7 +10,7 @@
 
 【强烈推荐】加入51爆料公告频道：https://t.me/https_51bl_fun1
 
-51爆料TG官方群 https://t.me/https_51bl_fun1
+51爆料TG官方群 https://t.me/baoliao_511
 
 加入微信扣扣粉丝群 https://51bl.dev/?path=/qun.html
 
