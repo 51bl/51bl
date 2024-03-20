@@ -1,10 +1,10 @@
-### 51爆料网 最新地址 👋 (最新更新时间2024-03-18)
+### 51爆料网 最新地址 👋 (最新更新时间2024-03-20)
 
-最新吃🍉地址：http://wybl.shop/
+最新吃🍉地址：http://wybl.site/
 
-51爆料备用域名：http://wybl.xyz/
+51爆料备用域名：http://wybl.shop/
 
-51爆料网备用域名：http://51bl.work/
+51爆料网备用域名：http://wybl.xyz/
 
 51爆料永久地址 http://51bl.cool/
 
@@ -12,7 +12,7 @@
 
 51爆料TG官方群 https://t.me/baoliao_511
 
-加入微信扣扣粉丝群https://wybl.shop/?path=/qun.html
+加入微信扣扣粉丝群https://wybl.site/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/baobao423 
 
