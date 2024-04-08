@@ -1,10 +1,10 @@
 ### 51爆料网 最新地址 👋 (最新更新时间2024-04-05)
 
-最新吃🍉地址：http://5ybl.life/
+最新吃🍉地址：http://5ybv.com/
 
 51爆料备用域名：http://5ybl.com/
 
-51爆料网备用域名：http://5ybl.top/
+51爆料网备用域名：http://5ybl.life/
 
 51爆料永久地址 http://51bl.cool/
 
