@@ -1,11 +1,11 @@
-### 51爆料网 最新地址 👋 (最新更新时间2024-06-19)
+### 51爆料网 最新地址 👋 (最新更新时间2024-06-25)
 
 
-最新吃🍉地址：https://wybl1.com/
+最新吃🍉地址：https://wybl2.com/
 
-51爆料备用域名：http://wu1bi.com/
+51爆料备用域名：https://wybl1.com/
 
-51爆料网备用域名：http://5ybl3.com/
+51爆料网备用域名：https://wybl4.com/
 
 51爆料永久地址 http://51bl.cool/
 
@@ -13,7 +13,7 @@
 
 51爆料TG官方群 https://t.me/baoliao_511
 
-加入微信扣扣粉丝群https://wybl1.com/?path=/qun.html
+加入微信扣扣粉丝群https://wybl2.com/?path=/qun.html
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/baobao423 
 
@@ -36,10 +36,6 @@
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
 
-<!--
-**51chigua/51chigua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
